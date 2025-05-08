@@ -101,6 +101,26 @@ To start your free trial, visit the [LearnWorlds website](https://www.learnworld
 <a href="https://afftrend.com/learnworlds"> 
 <img src="https://drive.google.com/uc?export=view&id=1lDtKHsXR0IJ5U39YxaBc_EH0Hjh0BnG2" alt="Get Full Access - Try Free"> 
 </a>
+
+## LearnWorlds Coupon Code
+As of May 9th, 2025, users can take advantage of coupon codes to get discounts on LearnWorlds subscriptions.
+
+One currently active coupon code is:
+
+DEMAND20: This code offers a 20% discount on the Learning Center plan, applicable to both monthly and annual subscriptions.
+How to Apply Coupon Codes:
+
+Visit the LearnWorlds Website: Go to the official LearnWorlds pricing page.
+Choose Your Plan: Select the plan you wish to subscribe to (e.g., the Learning Center plan for the "DEMAND20" code).
+Proceed to Checkout: During the checkout process, you will typically find a field labeled "Coupon Code," "Promo Code," or similar.
+Enter the Code: Carefully type or paste the coupon code (e.g., DEMAND20) into this field. Ensure the code is entered exactly as provided, as they can be case-sensitive.
+Apply the Discount: Click the "Apply" button. The discount should be reflected in your total amount due.
+Complete Your Purchase: Finalize your subscription with the discounted price.
+
+<a href="https://afftrend.com/learnworlds"> 
+<img src="https://drive.google.com/uc?export=view&id=1blfCEfuCZz6FkpegsgFrF423xrPoJ7ur" alt="Claim Your Discount"> 
+</a>
+
 ## LearnWorlds Alternatives
 
 LearnWorlds is a powerful platform for creating and selling online courses, but it’s not the only option out there. Depending on your budget, course needs, and features you're looking for, you might find a better fit with one of its competitors. Below is a comparison of some of the most popular LearnWorlds alternatives to help you make the right choice.

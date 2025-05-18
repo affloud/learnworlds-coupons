@@ -103,7 +103,7 @@ To start your free trial, visit the [LearnWorlds website](https://www.learnworld
 <img src="https://drive.google.com/uc?export=view&id=1lDtKHsXR0IJ5U39YxaBc_EH0Hjh0BnG2" alt="Get Full Access - Try Free"> 
 </a>
 
-## LearnWorlds Coupon Code
+## LearnWorlds Coupon Codes
 As of May 9th, 2025, users can take advantage of coupon codes to get discounts on LearnWorlds subscriptions.
 
 One currently active coupon code is:

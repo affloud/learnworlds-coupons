@@ -10,7 +10,7 @@ More people are teaching online than ever before. In fact, the global eLearning 
 
 One thing that makes LearnWorlds stand out is its interactive video feature. You can add questions, buttons, and links directly inside videos to make learning more fun and engaging. It also has AI tools to help you plan and create your course content faster.
 
-Whether you want to build a small online school or train hundreds of employees, LearnWorlds is flexible enough to handle both. It also connects with popular tools like Zoom, Mailchimp, and Zapier, so you can keep using your favorite apps.
+Whether you want to build a small online school or **train hundreds of employees**, LearnWorlds is flexible enough to handle both. It also connects with popular tools like Zoom, Mailchimp, and Zapier, so you can keep using your favorite apps.
 
 Here’s a quick look at LearnWorlds and what it offers:
 

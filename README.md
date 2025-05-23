@@ -1,4 +1,4 @@
-# LearnWorlds Coupon Codes, Discount & Offers 2025
+# LearnWorlds Coupon Codes 2025 (Upto 70% Discount & Offers)
 
 LearnWorlds is a tool that helps people create and sell online courses. It’s built for teachers, coaches, business owners, and anyone who wants to teach online. You can use it to build your own website, add videos and quizzes, and even run a full online school without needing to know any coding.
 
